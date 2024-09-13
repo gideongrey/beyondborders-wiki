@@ -8,7 +8,7 @@ Will update soon! :D
 
 ## Pricing
 
-It costs a total of **103$** or around **11,000tk** to sit for the SAT exam in Bangladesh.
+It costs a total of **111$** or around **13,300tk** to sit for the SAT exam in Bangladesh.
 
 ## Test Centers
 
